@@ -13,8 +13,7 @@ $$
 ---
 
 * [ ] 
-1. 
-###### Enter footnote here.
+* ###### Enter footnote here.
 
 
 
