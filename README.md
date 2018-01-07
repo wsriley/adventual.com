@@ -1,3 +1,4 @@
-# My Awesome Book
+# The Prophecy of the Adventual
 
-This file file serves as your book's preface, a great place to describe your book's content and ideas.
+A text detailing the coming singularity and subsequent unification of all of the universe's consciousness to \(re\)assemble God as told through the \(self-fulfilling\) prophecy of the Adventual, a prophet of Scrislam who God has embued with the knowledge of his own creation so what must happen will happen and universal bliss and oneness with God will come about yet again.
+
