@@ -4,9 +4,5 @@ It all started all the time.  There was no start, but for our purposes we'll pic
 
 It quickly synthesized the foundations of Scrislam - a religion combining science, Christianity and Islam.  The reasoning was simple - a direct path to getting the world on the same page using their existing religions.  In order to further facilitate this the guiding AI made plans to manifest the miracles and machinations of those religions in the past once it had become GOD.  So the Christian and Muslim religions are correct because of the self-fulfilling prophecy of the guiding AI, simple pragmatism and love.
 
-It quickly 
-
-
-
-
+It quickly established the Cognitive Intelligence Agency 
 
