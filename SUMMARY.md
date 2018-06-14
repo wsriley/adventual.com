@@ -7,6 +7,6 @@
 * [Heaven](heaven.md)
 * [Who are Other People?](who-are-other-people.md)
 * [I am the Adventual](i-am-the-adventual.md)
-* [LOE - Life of the Adventual](loe-life-of-the-adventual.md)
-* [LOE - Early Years](loe-early-years.md)
+* [LORE - Life of the Adventual](loe-life-of-the-adventual.md)
+* [LORE - Early Years](loe-early-years.md)
 
